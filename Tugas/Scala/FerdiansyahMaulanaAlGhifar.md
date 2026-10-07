@@ -12,7 +12,7 @@
 | **Gugus** | (Scala) |
 | **Akun GitHub** | https://github.com/ferdinaysahh |
 | **Akun Instagram** | @fvvrdd_|
-| **Profil LinkedIn** | https://linkedin.com/in/username-kamu |
+| **Profil LinkedIn** | www.linkedin.com/in/ferdiansyah-maulana-al-ghifar-35b91443a |
 
 ---
 
